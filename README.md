@@ -1,2 +1,0 @@
-# proyecto
-repost1
